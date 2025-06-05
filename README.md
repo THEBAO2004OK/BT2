@@ -1,2 +1,0 @@
-# BT2
-OK HELLO
